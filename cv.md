@@ -12,7 +12,7 @@ For the last 3 years I have been working in a travel agency. I help people find 
 
 # My main skills and abilities:  
 multitasking  
-stress resistance
+stress resistance  
 processing a large amount of information  
 sociability  
 the ability to find an approach to people  
