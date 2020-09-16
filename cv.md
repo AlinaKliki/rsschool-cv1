@@ -3,6 +3,7 @@
 # Contact:
 >phone: +375 29 381 10 75  
 >telegram: @AlinaKliki  
+>instagram: @alinka_kliki  
 >e-mail: aika.me@yandex.by  
 
 I really want to work in the IT industry.I just started learning programming, now I am studying it at RSschool.  I have passed HTML Basics, CSS Basics, JS Basics. 
